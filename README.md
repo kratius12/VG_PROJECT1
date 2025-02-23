@@ -1,1 +1,0 @@
-# VG_PROJECT1
